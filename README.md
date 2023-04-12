@@ -1,2 +1,2 @@
-# The-way-to-survival
+# 生存之道
 The way to survival
